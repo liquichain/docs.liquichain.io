@@ -1,1 +1,0 @@
-Licoin currency icons
